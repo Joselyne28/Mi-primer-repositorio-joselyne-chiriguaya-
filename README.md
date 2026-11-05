@@ -1,2 +1,2 @@
-# Mi-primer-repositorio-joselyne-chiriguaya-
-Práctica de clase 
+# Mi-Primer-Repositorio-Joselin-Chiriguaya-
+Práctica de clase  
